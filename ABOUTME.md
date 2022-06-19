@@ -1,6 +1,6 @@
 Hi, I’m Another
  
-A Friday Night Funkin' fan 
+A Friday Night Funkin' fan and Osu Player
 
 
 
